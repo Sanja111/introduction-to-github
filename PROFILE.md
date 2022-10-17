@@ -1,2 +1,2 @@
-Welcome to my GitHub Profile!
-jkkkkkkkkoohioo
+Sanja Rikic PR11-2020
+Dusan Beodranski PR18-2020
